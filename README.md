@@ -1,0 +1,2 @@
+# story
+read and think
